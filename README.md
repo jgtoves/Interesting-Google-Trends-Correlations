@@ -1,3 +1,4 @@
 # Interesting-Google-Trends-Correlations
-
-<a href="https://www.tumblr.com/jgtoves/740952565990162432/google-trends?source=share">
+#Img 1) Fear (I'm scared) + A.I. Wow.
+<img
+src="http://drive.google.com/file/d/1A6yl9egURCToginsQsfjkAnqLWwzoZcq/view?usp=drivesdk"></img>
