@@ -1,4 +1,4 @@
-# Interesting-Google-Trends-Correlations
+# interesting-google-trends-correlations
 
 1) Fear (I'm scared) + A.I. 
 
